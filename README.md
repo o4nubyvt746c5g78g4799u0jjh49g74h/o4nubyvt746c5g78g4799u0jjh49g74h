@@ -1,7 +1,7 @@
 <h1 align = "center">
-  o4nubyvt746c5g78g4799u0jjh49g74h
+  worldsafuckover
 </h1>
-<h3 align = "center">Discord Account (ID): 419778107537358850</h1>
+<h3 align = "center">Discord Account (ID): 819395923011436554</h1>
 <h3 align = "center">Exploits & Sources </h1>
 
 <h1 align = "center">
